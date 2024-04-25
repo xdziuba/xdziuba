@@ -1,5 +1,5 @@
 - 👋 Hi, @xdziuba here!
-- 🔞 20 yo
+- 🔞 21 yo
 - 👀 Electronics / IT / Music
 
 <!---
